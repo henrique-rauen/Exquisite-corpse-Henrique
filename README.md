@@ -9,5 +9,3 @@ But the excitment, jovial and somewhat naive attitude would soon give way for le
 The group woke up after a long night of progrmaming and noticed that the sun had risen only to be coloured blood red. Every was taken aback, but one of the misfits had a feeling this was a long time coming.
 
 And then something unexpected happened to the the surprise of all...
- 
-But it wasn't a problem for these enthusiastic up-starts. Sure, the moon was a LITTLE scary, but they'd faced worse. They'd battled the monotony of first-day-admin. They fought off the terminal. They EVEN endured the beastly BeCode button. Though, this GIT... This GIT was something else! 
